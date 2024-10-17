@@ -3,7 +3,7 @@ title: "Welcome to my blog"
 meta_title: ""
 description: "first post"
 categories: ["daily"]
-date: 2024-10-18T05:00:00Z
+date: 2024-10-18T03:36:39+09:00
 author: "Byun Cheolyeon"
 tags: ["daily"]
 draft: false
