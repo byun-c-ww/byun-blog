@@ -17,68 +17,84 @@ maybe i should start with my childhood?
 but thats kinda like boring esp since i already touched upon my childhood a little already? so yeah maybe i should go for adhd!
 
 # Title of video - i hate my brain
+## Intro
+I hate my brain.
+i wish i could just grab my brain and shoot it
+_gag0: grab and then shoot my brain 
+why? beucz this mfer cannot concentrate for the life of me
+to the point where I now have strong suspicions that I have ADHD.
 ## background about my recent endeavors into identifying why i have problems concentrating
-I have adhd. Or at least, i have very strong suspicions that I do. 
-Why? Mainly because I could not concentrate in class.
-_gag1: viewer "yeah, everybody has had issues concentrating dude...", i make frightened face,
-yes thats fair thats fair, i absolutely dont think im gonna persuade anyone that I have adhd, just because i have issues focusing. Cuz who doesnt?
-Whenever I told my friends that I think I have adhd, they all went something like that too,
-_gag2: yeah man so, i think i have adhd because i cant concentrate at all. my friend goes "thats the only reason why?" I go "yeah", and my friend slaps me in the face and opens up my brain, and notice that my brain is just overheating and smoke is coming out of head. my friend goes "nah your fine. so stop whining you little bit--", and cuts off.
+_gag1: viewer "yeah everybody has trouble concentrating dude...", i say "no, i swear its different!"
+yeah..., i absolutely dont think im gonna persuade anyone that I have adhd, just because i have issues focusing. Cuz who doesnt?
+Whenever I told my friends that I think I have adhd, it all went something like this,
+_gag2: yeah man so, i think i have adhd because i really struggle with concentrating. my friend goes "thats the only reason why?" I go "basically yes", and my friend slaps me in the face and opens up my brain, and notice that my brain is just overheating and smoke is coming out of head. my friend goes "your fine. so stop whining like a little bit--", and cuts off.
 
-I wasnt able to persuade any of my friends that i had adhd. So lets see if I can at least persuade you guys, the viewers, about the reason why I think I have adhd, and have an imbalance of brain chemicals!
+so I wasnt able to persuade any of my FRIENDS about it, So lets see if I can at least persuade you guys, the viewers, about the reason why I think I have ADHD, justifying my hatred towards this pink stinking gumball in my head
 PLAY_INTRO
-so, yall probably already know what adhd is, people with adhd exhibits hyperactivity and issues with concentrating. Now, other animation youtubers like icecreamsandwich and jaidenanimation made fantastic videos about adhd already. And I learned through their vidoes that there are 2 types of adhd. The inattentive type, and then the hyperactive type. I have the inattentive type. So I might seem like a quiet kid on the surface, but actually there is still a lot of hyperactivity going on, but its just happening inside my head, instead of it being manifested into physical hyperactivity.
-gag3: a teacher asks "any questions?", I just go "..." and the teachers goes "byun seems like hes paying attention. hes making eye contact with me just fine too", and then in my head im actually, playing the super mario theme?
+so people with adhd exhibits hyperactivity and issues with concentrating. And there exists two different types. ~~other animation youtubers like icecreamsandwich and jaidenanimation made fantastic videos about adhd where I got to learn about this stuff. the 2 types are, The inattentive type, and then the hyperactive type, and I have the inattentive type. So I might seem like a normal kid on the surface thats just kinda quiet all the time, but actually there is still a lot of hyperactivity going on, but its just happening inside my head.~~ 
+The inattentive type, and then the hyperactive type. btw i learned these from icecreamsandwiches video on adhd, so check that shit out. for me, I suspect I have the inattentive type of adhd. People with this type may seem theyre paying attention sitting quiety lin class, when in reality they think about other shit constantly.
+gag3: a teacher asks "any questions?", I just go "..." and the teachers goes "he seems like hes paying attention. hes making eye contact with me just fine too", and then in my head im actually, playing the super mario theme?
 or maybe the carton of milk falling from spongebob?
 
-but im honestly pretty sure everybody had that kind of issue focusing. what differentiates me with those people? Its the fact that, for me this happens WAY too often. How often? I personally feel it happens 80% of the time. Whenver I need my brain to learn or listen to a lecture or do some task, I get distracted by my own thoughts and get derailed SO EASILY. Now, this number of 80% is just a number I came up with, and the number could probably be way less severe, like 50% maybe. 
-But even now as I am writing this script I got distracted with some random thoughts!! in total this script took me about 5 hours to write, but during that time my thoughts derailed for about 2 hours probably. so the actual time i spent writing the scipt is 3 hours. And unless if I am really REALLY interested in the thing I am working on already, i WILL 100% get distracted. So 80% of the time I need to focus, I get distracted everytime.
+but a lot of ppl has that kind of issue. what differentiates me with those people? Its the fact that, for me this happens WAY too often. How often? prolly 80% of the time. Whenver I need my brain to learn or listen to a lecture or do perform any task, I get distracted by my own thoughts and thoughts derail SO EASILY.  
+And unless if I am really REALLY interested in the thing I am working on already, i WILL 100% get distracted. So 80% of the time I need to focus, I get distracted everytime.
 gag4: is the 80& of the time, i get distracted everytime thing, will be the gag here
 
-What are these random thoughts that keep popping up in my head? I compiled a list of some of the most common "random thoughts I have"! By the way this list might not be so kid friendly so kids who are watching this right now, you guys have been warned!!
+What are these random thoughts that keeps on distracting me? well, I compiled a list of some of the most common "random thoughts I have"! By the way this list might not be so kid friendly so kids who are watching this right now, you guys have been warned!!
 _video: just a nsfw warning
 
 1. having sex, so libido.
-this one, is the bane of my existence. I HATE how when, whenver I do literally ANYTHING, doesnt matter what your doing, i could be cleaning the dishes or watching youtube videos, or studying, and the thought of having intercourse would randomly pop into my head. Well actually, to be more precise, what usually happens is, I would randomly start having random thoughts that would sometimes involve a WAMEN, and AS SOON AS a wamen is involved in my imagination, my brain blares the alarm cuz its an opportunity to start thinking about sex. And when I snap back reality, I realize that I have been on auto pilot for 5 minutes.
-gag5: i see an ad with a wamen on it, and i go "no...please resist the temptation you stupid brain" and my brain is like "hey its a wamen...SOUND THE ALARAM!!" and then cut back to me with my eyes thats all voided out
-2. arguments I had with friends that i had in the past and coming up with better rebuttals
-this is such a classic one. Im sure a lot of you have had that experience of having an argument, and coming up with the perfect rebuttal for that argument, 2 weeks later when your taking a shower. For me this one might be the worst "random thoughts" I have in my head, especially recently. I wont share any details now since it involves close people in my life, but maybe one day. But what you need to know is that, it really isnt a big deal at all, and yet it has been HAUNTING me and I just CANNOT get over it for some reason.
+this one, is the bane of my existence. I HATE how whenver I do literally ANYTHING, doesnt matter what your doing, i could be cleaning the dishes or watching youtube videos, or studying, and the thought of having intercourse would randomly pop into my head. what usually happens is, whenver I need to think think about anything, AS SOON AS a wamen is involved in that thought of mine, my brain blares the alarm cuz its an opportunity to start thinking about sex.
+gag5: i see an ad with a wamen on it, and i go "no...please resist the temptation you stupid ass brain" and my brain is like "hey its a wamen...SOUND THE ALARAM!!" and then cut back to me with my eyes thats all voided out
+2. number2, arguments i had in the past
+this is such a classic one. Im sure a lot of you have had that experience of having an argument, and coming up with the perfect comeback for that argument, 2 weeks later when your taking a shower. I had one argument pretty recently that I just cannot get over and roll off my back for the life of me, despite the fact that it really is not a big deal. And i think talking about that argument will make me go a bit insane so lets move on.
 gag6: just show images of me cleaning the dishes, then my eyes black out and i start thinking abot the argument. Then you do the same thing with me in the shower, me on bed, and me while im working. the last scene, i think im just gonna write "i hate my brain"
 3. => stupid things i have done in the past!!!
-this shit is really friggin common too....my brain is SUCH a fan of reminding me about my failure in the past. like dumb things i said, awkward social interactions... and ive said a lot of dumb things in the past, all thanks to me not paying attention too many times. So my FRIGGIN brain fails to retain information correctly, then I fail to give people correct information, then my friggin brain starts to REMIND me of those embarassing times I gave misinformation... what a bag of dicks this brain of mine...fucking hell....
-gag7: i guess ill just use images of me telling people yeah the professor didnt mention any deadlines and then turns out there was... and im all like "SHIT"... and years later my brain is like, "oh my god you were so fucking stupid that one time what the fuck is wrong with you! LOL"... and im like "I will body slam you BRAIN". and then my brain in the next scene is like "uh...but how?"
+this shit happens all the time too....my brain is SUCH a fan of reminding me about my failure in the past. like dumb things i said, awkward social interactions... and ive said a LOT of dumb things in the past, all thanks to me not paying attention too many times. So my FRIGGIN brain fails to retain information correctly, and then it starts to REMIND me of embarassing times I misinform people... what a bag of dicks this brain of mine...god damn ....
+gag7: i guess ill just use images of me telling people "yeah he didnt mention any deadlines" and then turns out there was... and im all like "SHIT"... and years later my brain is like, "oh my god you were so fucking stupid that one time what the fuck is wrong with you! LOL"... and im like "I will body slam you BRAIN". and then my brain in the next scene is like "uh...but how?"
 and then maybe I will add a final scene of me throwing my brain to the ground, and then me blue screening?
 
 4. succeedding in life, like great successses like being a god tier programmer or hitting 1 million subs on youtube
 this is also a pretty good one. I often find myself thinking about being a god tier pro-gamer, a god tier programmer, or a god tier music composer, or a youtuber with 1 million subs...so just any type of success in life, I often imagine myself having. 
-gag8: start off with me with my blacked out eyes indicating i wasnt paying attention, with thought bubble of me with 1 million subs, then the professor asks "so byun can you go over what we just discussed about how the transformer language model works and why it captures context better compared to Long Short Term Memory or Recurrent Neural Networks?
-and I go "because transformers are more than meets the eye" and the professor goes "?"
+and this also includes succeeding in overcoming my adhd!! oh the irony.
+so in a way, my adhd loves reminding me of the idea of overcoming itself??
+The main cause of the problem is telling me that I need to fix the problem...how annoying
+so its like 
+gag8: my adhd brain teases me with is wobbly arms, and say "ooooh you wanna try and fix me up so badly dont you ooooh maybe you should do sth about it then teehee cuz if you dont ill keep on teasing you about it oooh!" and I bring a bazooka and try to blast it, but it was all just part of my daydream (which is reusing the same clip from intro, but this time ill try and double the play speed)
 5. catchy music that just starts playing in my head
-this one also happens a LOT. This one is exacerbated by the fact that, I am learning how to compose music right now, and this makes it so that, I would start playing random music sometime in my head more I think? Im a personal fan of a lot of nintendo music, and video game music in general so thats what I usually play in my head.
+this one also happens a LOT.  Im a personal fan of a lot of nintendo music, and video game music in general so thats what I usually play in my head.
 gag9: i play animal crossing music, and i bop my head for 5 solid seconds... and the professor asks
 "byun, this time tell me about how lstm and RNN is able to retain information long term and how they differ in their approach to remember long term."
 and i just go "나비보벳따우" and teacher goes "thats a banger ngl"
 Now other random thoughts I have are,
-6. ideas for a gag to use in my videos, or my music.
-gag10: i just think to myself about the animal crossing gag and how the teacher is bopping to the animal cross music, and I gigle and the professor just stares at me with concern in his eyes.
-7. thinking about how to translate one word in one language to another
-gag11: how do you say "주례" in English...oh its called "wedding officiant scripts / wedding ceremony scripts"? interesting
+6. thinking about how to translate one word in one language to another
+gag11 (used number 9 in recording): how do you say "주례" in English...oh its called "wedding officiant scripts / wedding ceremony scripts"? interesting
 mention the fact that this happened while i was writing my script, then my mom enters my room really hard and she goes
 "when can i see my grandkids??" and I go "no mom im gonna make a video about you next time! not now!"
-8. completely random thoughts, or feelings. Yeah, sometimes I would just feel certain...feelings and then my imagination would go WILD off of these feelings. its a little hard to explain, an example is, the feeling of nostalgia or feeling of anger, and all those types of potent emotions. I would randomly start to feel those emotions, then my imagination would start to like, fill in the gaps? like, my brain would throw me things to think about, like past experiences I had that angered me or made me feel a sense of nostalgia. Or, my brain could also throw me its own scenario of what a scenario would look like that would definitely make me feel mad, or make me feel nostalgic.
+7. completely random thoughts, or feelings. Yeah, sometimes I would just feel certain...feelings and then my imagination would go WILD off of these feelings. its a little hard to explain, an example is, the feeling of nostalgia or feeling of anger, and all those types of potent emotions. So for example if that emotion is nostalgia, my brain first starts off with randomly feeling nostalgic, and THEN my brain would remind me of past experiences that made me feel nostalgic, OR it could also give me fake imaginary scenarios that would potentially make me feel nostalgic...
+heres a quick example. my mind just gave one really random imaginary scenario, while I was writing this script, that makes me feel kind of angry i guess? I was imagining myself living with a girl, and while i was sitting on my chair, that girl approached me and shaves my head in one fell swoop. And thats it...yeah i know my fucking mind is truly an enigma. 
 video: maybe ill just add in some serene back ground with calming music...then cut to me with blacked out eyes indicating my thoughts are hyperactive
 
 ## why i hate my brain
-And THIS, this tendency of my brain to start, throwing things to contemplate over, throwing things to think and feel about, 70 million times a day, THIS is the reason why I HATE my brain. A good analogy I think is, as if your brain is an alter ego. Its not part of yourself, but the brain has a mind of its own??
-gag12: the brain says "...but i am your mind...wat??"
-if that makes any friggin sense, and me and my brain only share the same memories, but we dont share the same... mind.
+And THIS, this tendency of my brain to start, throwing things to contemplate over, throwing things to think and feel about, 70 million times a day, THIS is the reason why I absolutely HATE my brain. A good analogy I think is, as if your brain is an alter ego. like your brain has a mind of its own??
+gag12 (used number 10 in recording): the brain says "...but i am your mind...we share the same mind...wat??"
 gag13: my brain is dumb founded, and overheats
-This is getting a little confusing. The point is that, I dont have control over my brain at all. And as SOON as there is nothing in front of me right now that grabs MY attention, then my brain takes over the wheel, and makes ME think about whatever my BRAIN wants!
+im Not sure if that makes a lot of sense. The point is that, I dont have control over my brain at all. And as SOON as there is nothing in front of me right now that grabs MY attention, then my brain takes over the wheel, and makes ME think about whatever my BRAIN wants! And usually whatever my brain WANTS to think about are completely fucking random!
+gag13.5 (but used number 11 for recording): i am trying to read a book, and says out loud "alrighty lets read this thing..." then my brain is like "hey... you know what'll actually be more useful in life? some socializing skills becuz you suck at socializikng pretty hard... judging from past experiences, wouldn't you agree?" and then a small miniature figure of mine appears next to my brain which is supposed to be my own mind? it tells my brain "uh... no i just wanna read this book right now" but then zooms out to reveal me with grey eyes and im like "yeah...i should maybe go learn more about sociazling right now..." 
+and then maybe ill add one bit where my brains says "and also i think we should watch some porn..." and then cuts off immdeiately
 
-And this is what made me take so much god damn time learning something when I dont super care about it, which made me struggle pretty hard getting good grades in school. Even things like deadline for assignments, I had trouble with, cuz there was a good chance I WAS not paying attention when the deadline was mentioned, unless if it was written somewhere where I can easily notice.
-Honestly my experience going to school ever since the age of 10, just went like this.
-I go to class, I pretend like im paying attention by being quiet, when in reality I would actually be paying attention only 10% of the time, and the class is finished. In a 90 minute class, Id be focusing for 10, or even 5 minutes sometimes.
-And I KNOW this will start causing me a lot of headache later down the line when I actually start to work, which is why I finally decided that, I need professional help, and get medication.
+~~And this is what made me take so much god damn time learning something when I dont super care about it. and lets be real, a student that really cares about learning things, when they're forced to learn it like in school, is PRETTY rare., which made me struggle pretty hard getting good grades in school, becuz I didnt give a dong about math and history when I had to learn it in order to go get good grades in school. Other things like deadlines for assignments, I had trouble with too, cuz there was a good chance I WAS not paying attention when the deadline was mentioned, unless if it was written somewhere where I can easily notice.~~
+my experience going to school ever since the age of 10, ALL wnet something like this.
+I go to class, I just stay quiet pretending like im paying attention by sometimes making eye contact with the teacher / professor, when in reality I would actually be paying attention only 10% of the time, and the class is finished. In a 90 minute class, Id be focusing for 10, or even 5 minutes sometimes, while the rest is spent thinking about random unrelated things.
+gag14: every random thought i covered like "arguments" "embarassing past" "succeeding in life" "catchy music"
+they all start fighting and be like "Im gonna take control of the brain", "no Im gonna do that"
+and then libido comes bust the door open in the brain and hes like "everybody stfu" 
+~~And I KNOW this will start causing me a lot of headache later down the line when I actually start to work, which is why I finally decided that, I need professional help, and get medication.~~
+~~so in my part 2 video on adhd ill share my experiences getting diagnosis from a psychiatrist and potentially getting medication!~~
+
+outro:
+hey thanks for watching. So, just as a disclaimer, i dont think I 100% have adhd, i just suspect that something is going on in my head, and that something might just be adhd. So I am planning on visiting a psychiatrist and potentially getting medicated, and make a part 2 video about my brain again. So yeah! thank you all for watching.
+
 
 ## Medication
 Getting adhd meds in Korea is I believe a bit harder compared to other countries, because ONE, people used to misuse these meds, esp students who thought adhd meds are magical meds that helps concentration, even for ppl without adhd. TWO, meds like adderrall that is a close relative of meth is banned completely because anything that even resembles recreational drugs in this country is strictly prohibited. Not to say that adderall is basically meth, i think its supposed to be a bit more complicated than that? All i care is that, adderall seems to work great as adhd meds, and I would have taken it too if i could only get my hads on one.
