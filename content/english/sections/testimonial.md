@@ -1,29 +1,29 @@
 ---
 enable: true
-title: "What Users Are Saying About Hugoplate"
-description: "Don't just take our word for it - hear from some of our satisfied users!  Check out some of our testimonials below to see what others are saying about Hugoplate."
+title: "Shameless Promotion!"
+description: "A list of all my skills"
 
 # Testimonials
 testimonials:
-  - name: "Marvin McKinney"
-    designation: "Web Designer"
-    avatar: "/images/avatar-sm.png"
-    content: "Lorem ipsum dolor sit amet consectetur adipisicing elit. Qui iusto illo molestias, assumenda expedita commodi inventore non itaque molestiae voluptatum dolore, facilis sapiente, repellat veniam."
+  - name: "Data Science"
+    designation: "Learned Data Science in University and wrote a paper that is currently published ACL anthology"
+    avatar: "/images/python_logo.jpeg"
+    content: ""
 
-  - name: "Marvin McKinney"
-    designation: "Web Designer"
-    avatar: "/images/avatar-sm.png"
-    content: "Lorem ipsum dolor sit amet consectetur adipisicing elit. Qui iusto illo molestias, assumenda expedita commodi inventore non itaque molestiae voluptatum dolore, facilis sapiente, repellat veniam."
+  - name: "AWS"
+    designation: "Currently in the process of learning AWS, with the ultimate goal of learning devops using AWS"
+    avatar: "/images/aws_logo.png"
+    content: ""
 
-  - name: "Marvin McKinney"
-    designation: "Web Designer"
-    avatar: "/images/avatar-sm.png"
-    content: "Lorem ipsum dolor sit amet consectetur adipisicing elit. Qui iusto illo molestias, assumenda expedita commodi inventore non itaque molestiae voluptatum dolore, facilis sapiente, repellat veniam."
+  - name: "Web Development"
+    designation: ""
+    avatar: "/images/ror_logo.png"
+    content: "Learned Web Development mainly by working as an intern in a IT startup located in Tokyo named Techouse. I worked on backend development for a Saas platform that is used for HR management. Main tech stacks include Ruby on Rails, Postgresql, docker, and AWS"
 
-  - name: "Marvin McKinney"
-    designation: "Web Designer"
-    avatar: "/images/avatar-sm.png"
-    content: "Lorem ipsum dolor sit amet consectetur adipisicing elit. Qui iusto illo molestias, assumenda expedita commodi inventore non itaque molestiae voluptatum dolore, facilis sapiente, repellat veniam."
+  - name: "Kubernetes"
+    designation: "Learning Devops using Kubernetes"
+    avatar: "/images/kube_logo.png"
+    content: "Aiming for CKA in 2025"
 
 # don't create a separate page
 _build:
